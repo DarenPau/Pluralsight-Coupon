@@ -49,7 +49,7 @@ So what are you waiting for? Try out Pluralsight risk-free now!
 
 ## How to Redeem Your Pluralsight Coupons & Discount Code?
 
-Here is how you can redeem your Pluralsight Coupons and discounts in a few simple steps.
+Here is how you can redeem your [Pluralsight Coupons and discounts](https://www.linkedin.com/pulse/pluralsight-coupons-get-50-off-promo-code-march-k6qrf) in a few simple steps.
 
 Step 1: Go to the Pluralsight Official Website
 
